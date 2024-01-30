@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kirolous23
+- 👀 I’m interested in Web 3.0
+- 🌱 I’m currently learning Front End.
+- 💞️ I’m looking to collaborate on opportunities that help me grow in tech field
+- 📫 How to reach me : https://www.linkedin.com/in/kirolous-osama-79968a269/
